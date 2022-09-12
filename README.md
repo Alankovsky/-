@@ -16,6 +16,7 @@
 总之，愿人本与自由的甘霖充盈地赋予每一位访客，愿他们好睡眠、好胃口
 
 //ps:捐助信息/Donation_Info：Alipay +86 13451750709
+希望哪天你们请我，或者要求我请你们，喝咖啡
 
 Hi, Here is Cafe Weird Social Science, in the Untied Kingdom of SHS, Columbia, Latin America.
 
