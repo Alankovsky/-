@@ -19,7 +19,7 @@ Slovaks are...reasonable?)
 
 Pro-Russia can bring severe damage on Chinese international reputation in a context where Russia is widely defined as evil invador. 
 Following international collaborations on commerce, politics, or even millitary might be difficult to succeed. Confidence in China would furthur decline
- after zero-covid policies, investment would be driven down, Chinese would be considered alien, the rich would flee. (SOMETHING TO MENTION: XI MIGHT NOT BE
- ABLE TO RECOVER TAIWAN DURING HIS LIFETIME IN SUCH STINKING REPUTATION AMONG EUs AND NATOs, LOL----OBVIOULSY, PLA CAN BEAT TAIWAN TROOPS, BUT NOT NATOs, BRUH)
+ after zero-covid policies, investment would be driven down, Chinese would be considered alien, the rich would flee. *(SOMETHING TO MENTION: XI MIGHT NOT BE
+ ABLE TO RECOVER TAIWAN DURING HIS LIFETIME IN SUCH STINKING REPUTATION AMONG EUs AND NATOs, LOL----OBVIOULSY, PLA CAN BEAT TAIWAN TROOPS, BUT NOT NATOs, BRUH)*
  
  ***
