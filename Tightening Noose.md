@@ -23,3 +23,11 @@ Following international collaborations on commerce, politics, or even millitary 
  ABLE TO RECOVER TAIWAN DURING HIS LIFETIME IN SUCH STINKING REPUTATION AMONG EUs AND NATOs, LOL----OBVIOULSY, PLA CAN BEAT TAIWAN TROOPS, BUT NOT NATOs, BRUH)*
  
  ***
+ 
+ Rare Protest, Beijing, 10.13.2022
+ 
+ “Say no to Covid test, yes to food. No to lockdown, yes to freedom. No to lies, yes to dignity. No to cultural revolution, yes to reform. No to great leader, yes to vote. Don’t be a slave, be a citizen,” reads one banner.
+
+“Go on strike, remove dictator and national traitor Xi Jinping,” reads the other.
+
+
