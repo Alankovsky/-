@@ -24,7 +24,7 @@ Following international collaborations on commerce, politics, or even millitary 
  
  ***
  
- Rare Protest, Beijing, 10.13.2022
+ Peaking, 10.13.2022
  
  “Say no to Covid test, yes to food. No to lockdown, yes to freedom. No to lies, yes to dignity. No to cultural revolution, yes to reform. No to great leader, yes to vote. Don’t be a slave, be a citizen,” reads one banner.
 
